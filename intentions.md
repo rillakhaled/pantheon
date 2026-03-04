@@ -8,5 +8,6 @@ Seed of the project: "what can Ganesh do for me" as a google search
 **Design values**
 
 - mutual shared “authenticity”
+- follow speculation to its logical endpoint
 - fictional internal consistency
 - the concept is sensible at the diegetic level
