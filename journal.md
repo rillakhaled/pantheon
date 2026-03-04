@@ -4,7 +4,7 @@ So P & I went to the Model/Actriz & Peaches show last night.
   
 And can I just say,
 
-omfg
+**omfg**
 
 The Model/Actriz set alone was [perfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfectperfect](https://www.youtube.com/watch?v=VKYY8DxVZHE)  
   
@@ -12,7 +12,7 @@ So [perfect](https://www.youtube.com/watch?v=VKYY8DxVZHE) that I could have turn
   
 But then
 
-Peaches.
+**Peaches**.
 
 For someone whose music is unashamedly and joyously sexual in nature and content, it begs the question: how does one embrace that (in our cultural context) in one’s identity and exude it as energy during performance without it becoming uncomfortable for others?  
   
@@ -80,12 +80,12 @@ Assuming I can contract my belief & practices to others, does that mean I can bo
   
 We would maintain our collective rights to our heaven-likes because the same amount of belief & practice would be happening.  
   
-What am I giving?  
+**What am I giving?**  
 
 - Some amount of the spiritually positive “during my lifetime” gains I receive from my base religion
 - Some of the requirement to believe and practice my base religion
   
-What am I receiving?
+**What am I receiving?**
 
 - Some amount of someone else’s spiritually positive “during their lifetime” gains from their base religion
 - A temporary requirement to believe and practice in another religion
@@ -93,3 +93,41 @@ What am I receiving?
 Now let's add network effects. Like timesharing, I can "buy" my way into a pool of customers by spending a relatively small amount, but our collective capital is enough for us to collectively own something. 
 
 I can only access the benefits of a particular religion if someone in my pool has it as a base religion. So I'm incentivized to make it a rich pool.
+
+**---- a few hours later**
+
+I've been entertaining the following: **a temporary requirement to believe and practice in another religion**.
+
+This was triggered by looking up Hare Krishna practices and having roughly the following internal dia/monologue:
+
+"but I don't wanna do that..."
+
+"even if it's not that far off from what the religion I was raised with assumes"
+
+"in the context of adherence to the 5 pillars, I'm not presently on the list for infinite gain"
+
+"is my religious credibility rating too low for the pool?"
+
+"how have I immediately alienated myself from my own design concept?"
+
+"I decree that I am welcome to benefit from my design concept"
+
+"but I can't get back any more than I give"
+
+
+I don't give much so I don't get much: that I can accept. Because, frankly, otherwise I'd be more religious right?
+
+Because I also don't want to set up an offensive religious roleplay situation, there's no requirement to engage in anyone else's religious practices. In fact, it's more stable if everyone just continues practicing what they normally would, except that they're contributing some of their "during their lifetime" gains to a collective pool.
+
+So we will do away with **a temporary requirement to believe and practice in another religion**.
+
+**What am I giving?**
+
+- Some amount of the spiritually positive “during my lifetime” gains I receive from my base religion
+- ~~Some of the requirement to believe and practice my base religion~~
+
+**What am I receiving?**
+
+- Some amount of someone else’s spiritually positive “during their lifetime” gains from their base religion
+- ~~A temporary requirement to believe and practice in another religion~~
+
