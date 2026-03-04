@@ -1,9 +1,12 @@
-What can Ganesh do for me?
+Seed of the project: "what can Ganesh do for me" as a google search
 
-Materialize a consequentialist approach to acquisition of religious affiliation using e-commerce as an expressive vehicle.
+**Design intentions**
 
-Consider all standard elements of e-commerce platforms as potential expressive materials. 
+- Materialize a consequentialist approach to acquisition of religious affiliation using e-commerce as an expressive vehicle
+- Consider all standard elements of e-commerce platforms as potential expressive materials
 
-How easily can these digital materials function as a language for expressing comparative qualities of different religions?
+**Design values**
 
-What does the ease/difficulty of translation reveal about rhetorics of religion and rhetorics of buying shit?
+- mutual shared “authenticity”
+- fictional internal consistency
+- the concept is sensible at the diegetic level
